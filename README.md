@@ -15,5 +15,5 @@ https://iopscience.iop.org/article/10.1088/1757-899X/1248/1/012050
  - [Thanush A A](https://www.linkedin.com/in/thanushaa/)
  - [Dr Chitra P](https://www.linkedin.com/in/chitra-p-9a7a3014/)
  - [Kasinath J](https://www.linkedin.com/in/kasinath-j-2881a6200/)
- - [Surya Prakash R](https://www.linkedin.com/in/surya-prakash-r-3503161bb/)
+ - [Surya Prakash R](https://www.linkedin.com/in/surya-prakash-r-3503161bb/) 
 
